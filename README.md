@@ -1,1 +1,0 @@
-# offshore-hosting-dmca-ignored
